@@ -22,7 +22,7 @@ I accept only ["funny money"](https://www.coindesk.com/ecbs-christine-lagarde-sa
 
 EN: Every Tuesday is available ironing included in price. So if you are a fancy crypto hodler or businessman bring clothes on Monday evening. (max 10 pieces for ironing).
 
-CZ: Každé úterý je k dispozici i žehlení. Pokud jste stylový crypto hodler a nebo businessman tak doneste oblečení nejpozději v pondělí večer. (nax 10 kusů oblečení na žehlení).
+CZ: Každé úterý je k dispozici i žehlení. Pokud jste stylový crypto hodler a nebo businessman tak doneste oblečení nejpozději v pondělí večer. (max 10 kusů oblečení na žehlení).
 
 ## When and where?
 
