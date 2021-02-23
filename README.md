@@ -12,15 +12,23 @@ EN: Use [Signal](https://signal.org/) +420 735 876 five-four-two (number continu
 
 CZ: Použij [Signal](https://signal.org/) +420 735 876 pět-čtyři-dva (číslo pokračuje v psané formě, chci se vyhnout spamu)
 
-## Price
+## Price / Cena
 
-250 CZK / 10 EUR / 11 USD (but always in [Monero](https://www.getmonero.org/) or [BTC LN](https://phoenix.acinq.co/) )
+250 CZK / 10 EUR / 11 USD - per 4kg of clothes (but always in [Monero](https://www.getmonero.org/) or [BTC LN](https://phoenix.acinq.co/) )
 
 I accept only ["funny money"](https://www.coindesk.com/ecbs-christine-lagarde-says-speculative-bitcoin-needs-regulation).
+
+## Ironing / Žehlení 👔
+
+EN: Every Tuesday is available ironing included in price. So if you are a fancy crypto hodler or businessman bring clothes on Monday evening. (max 10 pieces for ironing).
+
+CZ: Každé úterý je k dispozici i žehlení. Pokud jste stylový crypto hodler a nebo businessman tak doneste oblečení nejpozději v pondělí večer. (nax 10 kusů oblečení na žehlení).
 
 ## When and where?
 
 Vitězná ulice, Praha, Czechia
 
 Time: send a message, I will respond quickly and will try to adapt.
+
+
 
